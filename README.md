@@ -7,8 +7,9 @@
 
 
 🔥 REDLINE STEALER !
-![1_MVZ5xWBD_4cujO5QqxL4GA](https://user-images.githubusercontent.com/130488465/232717062-76481094-af44-46e7-a874-bf154312c565.jpg)
 
+
+![1_MVZ5xWBD_4cujO5QqxL4GA](https://user-images.githubusercontent.com/130488465/232718156-74c7dca2-78e2-4646-bdb3-26932371c8e5.jpg)
 
 ⚡️Collecting from browsers:
 ⚡️ Login and passwords
